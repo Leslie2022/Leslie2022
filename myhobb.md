@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Leslie2022
-- 👀 I’m interested in nothing but smile and philosophy :)
+- 👀 I like smile and philosophy :)
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ? By emile saluzifengyueti@outlook.com
